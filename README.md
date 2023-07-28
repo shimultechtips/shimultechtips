@@ -18,7 +18,7 @@ That's why I like to make things that make a difference.
 
 - 👨‍🎓 I'm a **Diploma Engineering Student**
 
-- 🔭 I’m currently working on [Khondokar Computer](https://www.facebook.com/groups/268626812123677)
+- 🔭 I’m currently working at [Khondokar Computer](https://www.facebook.com/groups/268626812123677)
 
 - 💬 Ask me about anything, I am happy to help
 
